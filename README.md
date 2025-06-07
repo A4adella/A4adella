@@ -21,6 +21,6 @@ I'm passionate about building beautiful, user-friendly web experiences. Currentl
 #### 📫 Let's Connect
 - 🐦 Twitter: [Aidemetuk](https://x.com/AIdemetuk)
 
-- 💼 LinkedIn: [Adella Idemetuk](www.linkedin.com/in/adella-idemetuk)
+- 💼 LinkedIn: [Adella Idemetuk](https://www.linkedin.com/in/adella-idemetuk)
 
 
